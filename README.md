@@ -5,7 +5,7 @@
 Write a short story, "What Happens When You Apply For A High-Paying Tech Job On The American West Coast." 
 Here are the main points:  
 - the application process is easy.  
-  you won't get the job.  
+- you won't get the job.  
 - tech executives will bombard your news feed with bull crap, and get your siblings to participate in MKUltra.  
 - the local police want to get in on the action.  
 - you won't get a 6-figure salary when another angry man from England or Germany robs a silicon valley bank.  
