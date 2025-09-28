@@ -178,6 +178,9 @@ write another story, "the problem with rich catholics in the U.S.".
 ## My Motive 
 
 Just look at the wealth concentration under Romanesque politics (FAMILEEEE). 
+And I don't understand Catholic hierarchy. I only know the Pope is the leading figure.
+I discovered the American Catholic Church wants to be "different" from their Old World 
+headquarters in Vatican City. 
 
 ## The Story 
 **The Problem with Rich Catholics in the U.S.**
