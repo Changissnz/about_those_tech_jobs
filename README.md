@@ -11,7 +11,8 @@ Here are the main points:
 - you won't get a 6-figure salary when another angry man from England or Germany robs a silicon valley bank.  
 - the internet was and is built by girls, apparently.  
 
-## What Happens When You Apply For A High-Paying Tech Job On The American West Coast
+## The Story 
+**What Happens When You Apply For A High-Paying Tech Job On The American West Coast**
 
 The application process was painless—five clicks, a résumé upload, and a cheery email telling you, *“We’ll be in touch soon!”* It almost felt like the dream was within reach, that elusive six-figure salary glimmering on the horizon like San Francisco Bay in the morning sun.
 
