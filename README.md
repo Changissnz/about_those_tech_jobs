@@ -30,6 +30,9 @@ In the end, applying for the job feels less like a career step and more like bei
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+HERE ARE MORE SHORT STORIES BECAUSE OF RAMIFICATIONS.
+
+
 ## The Input 
 write another short story, "The American Thought That He Could Deceive U.S. (Undershatenen Staschischung)".
 
