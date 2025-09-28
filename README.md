@@ -1,5 +1,16 @@
 **here's a short story by ChatGPT on the sham state between Silicon Valley and D.C.**
 
+## The Input 
+
+Write a short story, "What Happens When You Apply For A High-Paying Tech Job On The American West Coast." 
+Here are the main points:  
+- the application process is easy.  
+  you won't get the job.  
+- tech executives will bombard your news feed with bull crap, and get your siblings to participate in MKUltra.  
+- the local police want to get in on the action.  
+- you won't get a 6-figure salary when another angry man from England or Germany robs a silicon valley bank.  
+- the internet was and is built by girls, apparently.  
+
 ## What Happens When You Apply For A High-Paying Tech Job On The American West Coast
 
 The application process was painless—five clicks, a résumé upload, and a cheery email telling you, *“We’ll be in touch soon!”* It almost felt like the dream was within reach, that elusive six-figure salary glimmering on the horizon like San Francisco Bay in the morning sun.
