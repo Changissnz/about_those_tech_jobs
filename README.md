@@ -182,6 +182,9 @@ And I don't understand Catholic hierarchy. I only know the Pope is the leading f
 I discovered the American Catholic Church wants to be "different" from their Old World 
 headquarters in Vatican City. 
 
+I don't like to draw conclusions on people with their faith, ancestry, or orientation. 
+But some matters are looking pretty pronounced. 
+
 ## The Story 
 **The Problem with Rich Catholics in the U.S.**
 
